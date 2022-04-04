@@ -1,1 +1,1 @@
-https://sadokha.github.io/rsschool-cv/cv
+https://sadokha.github.io/rsschool-cv/cv 
